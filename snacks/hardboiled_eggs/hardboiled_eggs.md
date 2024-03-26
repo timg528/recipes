@@ -12,5 +12,5 @@
 3. Place pressure cooker lid on and set to seal the pressure
 4. Once pressure is built up, cook on low pressure for 6 minutes
 5. While cooking, prepare large bowl with ice water
-6. After 6 minutes, immediately release the pressure
+6. After 5 minutes, immediately release the pressure
 7. Transfer eggs to ice water bath and chill for 15-20 minutes
