@@ -26,3 +26,4 @@
 * Sour cream can subsitute for greek yogurt
 * Regular olives can substitute for kalamata, but they don't taste as strong/good
 * More garlic, more better
+* Take a salmon filet, cut it in half but leave the top and bottom connected, spray a baking sheets and lay it on there. Stuff dip in the center and bake until salmon is cooked.
