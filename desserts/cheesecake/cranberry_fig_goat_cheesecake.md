@@ -9,11 +9,11 @@
 
 ### Cheesecake Base
 * 2 lbs full fat cream cheese
-* 8 oz goat cheese
+* 10.5 oz goat cheese
 * 1 cup plain greek yogurt
-* 1.5 cup equivalent of sugar alternative (Splenda, etc.)
+* 1 cup equivalent of sugar alternative (Splenda, etc.)
 * 4 extra-large eggs
 * 1 tablespoon vanilla extract
-* 1 tablespoon lemon juice
+* 1/4 teaspoon lemon juice
 * 0.5 cup fig jam
 * 0.5 cup cranberry jam
